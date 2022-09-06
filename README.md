@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @abyssalToxicide/Valerie
+- 👀 I’m interested in gaming and drawing
+- 🌱 I’m currently planning on learning game design
+- 💞️ I’m looking to collaborate on any game as a tester at the moment
+- 📫 How to reach me- Discord! My user and # is abyssalToxicide#3518
